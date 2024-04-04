@@ -1,3 +1,3 @@
 ### Hi, I'm Gal 👋
 
-Welcome to my GitHub :)
+Welcome to my GitHub 😄
